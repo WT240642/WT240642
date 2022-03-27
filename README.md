@@ -1,5 +1,0 @@
-- 👋 char: @WT240642
-- 👀 apparent screening
-- 🌱 to no one
-- 💞️ nothing happens no one
-- 📫 what is is already without a second
